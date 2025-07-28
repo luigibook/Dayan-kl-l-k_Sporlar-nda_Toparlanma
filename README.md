@@ -1,2 +1,2 @@
-# Dayan-kl-l-k_Sporlar-nda_Toparlanma
+# Dayaniklilik_Sporlarinda_Toparlanma
 Dayanıklılık Sporcularında Toparlanma Rehberi
